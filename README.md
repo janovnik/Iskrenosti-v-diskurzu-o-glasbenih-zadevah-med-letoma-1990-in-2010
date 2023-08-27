@@ -1,4 +1,4 @@
-# NAMEN REPOZITORIJA
+# OPIS
 Dotičen repozitorij hrani Prilogo 1 moje magistrske naloge z naslovom *Od glasbenih praks k besedam o njih: »iskrenost«, »iskren« in »iskreno« v diskurzu o glasbenih zadevah med letoma 1990 in 2010*. Projekt se lahko s časom posodobi. Spodaj najdete povzetek in ključno referenco.
 
 ## ABOUT
